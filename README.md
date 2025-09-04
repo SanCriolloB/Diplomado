@@ -1,1 +1,1 @@
-# Trabajo-de-grado
+# Diplomado
